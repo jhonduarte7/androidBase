@@ -1,4 +1,4 @@
-# ANDROID MASTERhthryjrd
+# ANDROID MASTER
 
 <p align="center">
 <a href="https://youtu.be/vJapzH_46a8"></center></a></p>
